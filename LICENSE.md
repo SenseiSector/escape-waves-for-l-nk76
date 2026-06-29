@@ -1,4 +1,4 @@
-
+escape waves for lucky blocks Scripts advanced is the best escape waves for lucky blocks Script, featuring silent aim and one-hit kill. Safe and
 
 
 
